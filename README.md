@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hola soy Mariel  y estoy aprendiendo 🦗💻👀🤪😱😊
 
 <!--
 **mariel111/mariel111** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
